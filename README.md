@@ -1,2 +1,0 @@
-# -4-57-THE-BEST-LIVE-IPTV-ADDON-FOR-KODI-2016--INTERNATIONAL-CHANNELS
-https://www.youtube.com/watch?v=WmXOvmhZyC0
